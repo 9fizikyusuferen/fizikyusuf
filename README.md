@@ -19,8 +19,8 @@ Recipe:
 First 500gr ground meat put the large pot.Second add 
 grated onion and other ingredients.Then knead them in
 10 minute.After then give walnut to kneaded ingredients 
-.Finaly oven them at 180 degrees in 45-50 minutes.Your 
-meatballs are ready.
+.Finaly cook them oven to 180 degrees for 45-50 minutes.
+Your meatballs are ready.
 
 
 
