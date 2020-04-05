@@ -21,8 +21,7 @@ grated onion and other ingredients in the pot.Then knead them to
 10 minute.After then shape kneaded ingredients like walnut 
 .Finaly cook them oven to 180 degrees for 45-50 minutes.
 Your meatballs are ready.
-
-
+ https://encrypted-tbn0.gstatic.com/images?q=tbn%3AANd9GcRWyZzrwReHUQttYo2IQHDh2-MLHWl0_jUxxPK-YPRwot8YsafJ&usqp=CAU
 
 İkici hafta ödevi vücut kitle endeksi: 
 
